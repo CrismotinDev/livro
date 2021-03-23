@@ -1,2 +1,2 @@
-# livro
-livro de receita
+# livro 🐔
+livro de receita 🛒
